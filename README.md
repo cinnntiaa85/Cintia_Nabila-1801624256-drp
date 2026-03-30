@@ -1,3 +1,3 @@
-# Cintia_Nabila-1801624256-drp
-# Cintia_Nabila-1801624256-drp
-# Cintia_Nabila-1801624256-drp
+Nama: Cintia Nabila
+
+NIM: 1801624256
